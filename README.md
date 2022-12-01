@@ -2,8 +2,8 @@
 ## Hi there 👋, I'm Chou Po Yin 尹周舶
 
 ## 📌 Pin
-#### Real Estate Marketer and Development
-#### A real estate marketerter explore more posibility of myself. Enjoy coding and design in gerneral.
+#### Real Estate Marketer
+#### Explore more posibility of myself. Enjoy coding and design in gerneral.
 
 ##
 
