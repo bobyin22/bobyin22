@@ -1,4 +1,3 @@
-![Real Estate Marketer and Development](https://i.postimg.cc/cCbG0Hb2/lovepik-science-and-technology-map-of-vector-line-building-background-image-400055033.jpg)
 
 ## Hi there 👋, I'm Chou Po Yin 尹周舶
 
