@@ -1,12 +1,8 @@
 ![Real Estate Marketer and Development](https://i.postimg.cc/cCbG0Hb2/lovepik-science-and-technology-map-of-vector-line-building-background-image-400055033.jpg)
 
-### Hi there 👋, Chou Po Yin
+## Hi there 👋, I'm Chou Po Yin 尹周舶
 #### Real Estate Marketer and Development
-
-
-Hi, I am Chou Po Yin 尹周舶 from Taiwan, a real estate marketerter self-taught with JavaScript、HTML、CSS
-
-Enjoy design in gerneral.
+#### A real estate marketerter explore more posibility of myself. Enjoy coding and design in gerneral.
 
 - 🌱 I’m currently learning JavaScript/HTML/CSS 
 
