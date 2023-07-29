@@ -2,7 +2,7 @@
 ## Hi there 👋, I'm Chou Po Yin 尹周舶
 
 ## 📌 Pin
-#### iOS Developer
+#### An iOS Developer
 #### Explore more possibilities for myself. Enjoy coding and design in general.
 
 ##
