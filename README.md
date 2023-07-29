@@ -2,8 +2,8 @@
 ## Hi there 👋, I'm Chou Po Yin 尹周舶
 
 ## 📌 Pin
-#### Real Estate Marketer
-#### Explore more posibility of myself. Enjoy coding and design in gerneral.
+#### iOS Developer
+#### Explore more possibilities for myself. Enjoy coding and design in general.
 
 ##
 
